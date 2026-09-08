@@ -1,5 +1,5 @@
 💫 Hi 👋, I'm Devraj pal
-A passionate Data Analyst|Data Engineer
+A passionate Data Analyst
 
 Email Me 👉 ✉️ devpal2710@gmail.com
 
